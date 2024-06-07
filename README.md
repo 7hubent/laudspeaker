@@ -91,3 +91,5 @@ We would love to see you contribute to Laudspeaker. Join our slack to get involv
 [laudspeaker_ee_license]: https://www.mongodb.com/licensing/server-side-public-license
 
 -->
+
+https://medium.com/@7hubent/the-best-whatsapp-tv-advertisement-agency-in-nigeria-7hubent-media-tv-e4c8292a2946
